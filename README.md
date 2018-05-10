@@ -15,8 +15,6 @@ MMX Hill Dash 2 Hack Cheats 2018 Free gems & PacksFor Android iOS And Pc.
 The best way to hack MMX Hill Dash 2 Hack Actually it is extremely simple, no coding, hacking, programming skills needed. You only want because our hack application works online,
 no demand to download applications a steady internet connection and everything will be done through your browser. This approach is safe to use and 100% protected no Jailbreak, no spyware, no malware, no surveys.
 
-https://i.imgur.com/Z08i9gol.jpg
-
 MMX Hill Dash 2 Hack resource Free
 - Get Unlimited Gems & gems
 - Gain an advantage within the game.
